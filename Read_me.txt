@@ -1,0 +1,1 @@
+PNG MANIA - Seven beautiful effects for your Desktop using PNG files. Requires Windows XP.
